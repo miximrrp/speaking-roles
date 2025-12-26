@@ -1,2 +1,2 @@
 # speaking-roles
-Espero a alguien le sirva esto, me alegraría mucho.
+Aún no hay nada, no habrá por un tiempo, solo hay que tener fe.
